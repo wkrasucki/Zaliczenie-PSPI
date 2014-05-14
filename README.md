@@ -1,4 +1,4 @@
 Zaliczenie-PSPI
 ===============
-# WItam na stronie z repozystoriami.
+# Witam na stronie z repozytoriami.
 
