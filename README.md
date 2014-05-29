@@ -8,7 +8,7 @@
 Teren jest mały, wtulony wręcz w mury kościoła św. Mikołaja, więc przeciskamy się wąskim przejściem szukając Macieja Szyszki. To główny koordynator prac rekonstrukcyjnych z ramienia Muzeum Archeologicznego w Gdańsku.  Zanim zejdziemy do wykopu młody archeolog wprowadza nas w historię tego miejsca. <br/></p>
 
 <h3 align="center">![szyszko](https://lh6.googleusercontent.com/-ZFmnjkjrdpA/U4c5J4byJcI/AAAAAAAAAh8/tzOZ_gNMRGI/w581-h774-no/piwnica3.jpg)
-
+<p><i>Maciej Szyszko -koordynator prac "Piwnicy Romańskiej"</i></p>
 <p><i>&ndash; Piwnica, była częścią prawdopodobnie klasztoru Dominikanów. – mówi. – Z badań zaprawy metodą węgla C14 wynika, że budynek stał już w połowie XIII wieku. Choć są , też ślady starszych obiektów m.in. pod halą targową, po których zostały jedynie ślady fundamentów.</i> <br/>
 Dziś  możemy oglądać te pozostałości w formie mini skansenu na terenie hali. Jednak piwnica romańska, mimo wielu lat pod ziemią zachowała się nieomal w całości. Zdaniem Szyszki jest to obiekt unikatowy nie tylko dla Gdańska, ale wręcz w skali kraju. Głownie ze względu na niespotykaną u nas konstrukcję sklepienia. Istnienie tak starego obiektu nie pozostaje bez wpływu na historię miasta.<br/>
 <i>&ndash;Przede wszystkim należy odstąpić już od twierdzenia, że złoty okres w historii Gdańska zaczął się w XIV wieku. – uważa Maciej Szyszka. - Odkrycia w rejonie Kępy Dominikańskiej świadczą o tym, że już w okresie gdy miasto było stolicą Księstwa Pomorskiego powstawały tu monumentalne obiekty murowane. </i><br/>
