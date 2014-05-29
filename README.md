@@ -1,6 +1,6 @@
 # Zabytek jakiego nie było
 
-<h3 align="center">![memo](https://lh3.googleusercontent.com/-DENMeaYH46w/U4b62imIfgI/AAAAAAAAAbE/aoMwyNwq1SM/w718-h56-no/miecz+szpara.jpg)
+<h3 align="center">![memo](https://lh5.googleusercontent.com/-ZDYehKcLZr0/U4c4oG7ZmSI/AAAAAAAAAh8/j_XZqpHdDWw/w718-h539-no/IMG_0195.JPG)
 <h5 align = "justify">Centrum miasta, o krok od starówki, kryje się jedno z największych gdańskich odkryć archeologicznych ostatnich lat. XIII wieczna piwnica romańska na placu Dominikańskim Los zabytku długo był niepewny</h5>
 
 <p {tekst-indent: 10 }; align = "justify">Ulica Pańska, jak zwykle o tej porze dnia ruch jest umiarkowany, choć nie mały. Jeszcze kilkanaście dni i ciężko będzie przepchnąć się tedy wśród tłumu turystów. No cóż nie każdy może mieszkać w Gdańsku, ale każdy chce go zobaczyć, a skrzyżowanie ulicy Pańskiej i Podwala Staromiejskiego to brama to zaczarowanego świata Gdańskiej Starówki. Stąd krok do bazyliki św. Brygidy i odbudowanego po pożarze kościoła św. Katarzyny. Z drugiej strony Baszta Jacek i Hala Targowa, a dalej, butiki, sklepy, kafejki i ulice Długa i Długi Targ z Neptunem, Złotą Bramą i Dworem Artusa. <br/></p>
