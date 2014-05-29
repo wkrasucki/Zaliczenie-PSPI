@@ -30,17 +30,11 @@ Na placu Dominikańskim trwają przygotowania do wylania betonowej płyty przykr
 Planowana ekspozycja odsłoni nam Gdańsk jakiego wcześniej nikt z nas nie znał. 
 Zdaniem Macieja Szyszki, mało prawdopodobne jest, aby w przyszłości udało się odkryć w Gdańsku obiekt o takim znaczeniu, ale kto wie? </p>
 
-<h3 align="center">![memo](https://lh5.googleusercontent.com/-UjGNF3NeZOs/U4b6x1_K4II/AAAAAAAAAas/j6stq3epOts/w581-h774-no/DSC00078.JPG)
+<h3 align="center">![memo](https://lh6.googleusercontent.com/-IHkErIewxs4/U4c5B9XbA8I/AAAAAAAAAh8/Quh8cBFjvh8/w718-h539-no/piwnica1.jpg)
 
 
 <p align = "right"><i>/WoRK/Wojciech Roman Krasucki</i></p>
 
-<h4>Więcej informacji poniżej</h4>
-
-* [Muzeum Archeologiczne w Gdańsku](http://www.archeologia.pl/)
-* [Imperium Huńskie](http://pl.wikipedia.org/wiki/Plik:Huns_empire.png)
-* [Dla miłośników historii](http://www.historycy.org/)
-
-
+[Powrót do strony glownej](http://wkrasucki.github.io)
 ***
 
