@@ -10,7 +10,7 @@
 <p>My idziemy jednak w stronę straganów ustawionych na placu Dominikańskim. Choć wybór towarów jest tu spory nas interesuje niewielki skrawek terenu ogrodzony ocynkowanym płotem, schowany za targowiskiem. Duża połyskująca w słońcu brama wprowadza nas w świat innego Gdańska, którego do niedawna nikt nie znał.  Wewnątrz ruch nie mniejszy niż na ul. Pańskiej. Przechodzimy wśród gór żwiru, lawirujemy wśród wykopów. Co chwile słychać: „przepraszam”  i  z impetem mija nas kolejna taczka wypełniona materiałami budowlanymi. W centrum duże zadaszenie z blachy falistej chroni zabytek, który jest celem naszej wizyty. XIII wieczna piwnica romańska, jest najstarszym zachowanym pomieszczeniem w Gdańsku. Została odkryta w 2006 roku podczas prac związanych z rozbudową targowiska przy Hali Targowej. Mimo, że znalezisko było sensacyjne, długo wahano się nad jego losem. Kupcy nalegali na zasypanie piwnicy i gdy wydawało się, że nic nie zdoła zabytku uratować, władze Gdańska wraz z Urzędem Marszałkowskim postanowiły przekazać pieniądza na jego odbudowę. <br/>
 Teren jest mały, wtulony wręcz w mury kościoła św. Mikołaja, więc przeciskamy się wąskim przejściem szukając Macieja Szyszki. To główny koordynator prac rekonstrukcyjnych z ramienia Muzeum Archeologicznego w Gdańsku.  Zanim zejdziemy do wykopu młody archeolog wprowadza nas w historię tego miejsca. <br/></p>
 
-![szyszko](https://lh6.googleusercontent.com/-ZFmnjkjrdpA/U4c5J4byJcI/AAAAAAAAAh8/tzOZ_gNMRGI/w581-h774-no/piwnica3.jpg)
+<h3 align+"center">![szyszko](https://lh6.googleusercontent.com/-ZFmnjkjrdpA/U4c5J4byJcI/AAAAAAAAAh8/tzOZ_gNMRGI/w581-h774-no/piwnica3.jpg)
 <p align="center"><i>Maciej Szyszko -koordynator prac "Piwnicy Romańskiej"</i></p>
 
 <p><i>&ndash; Piwnica, była częścią prawdopodobnie klasztoru Dominikanów. – mówi. – Z badań zaprawy metodą węgla C14 wynika, że budynek stał już w połowie XIII wieku. Choć są , też ślady starszych obiektów m.in. pod halą targową, po których zostały jedynie ślady fundamentów.</i> <br/>
@@ -19,7 +19,8 @@ Dziś  możemy oglądać te pozostałości w formie mini skansenu na terenie hal
 Według archeologów nic podobnego nie powstało w tym czasie w promieniu co najmniej trzystu kilometrów. 
 Schodzimy do wykopu. Wąskie drewniane schody prowadzą do  niewielkiego przejścia w kamiennym murze, przesłoniętego jedynie fragmentem czarnej folii. W środku przy świetle budowlanego halogenu możemy podziwiać pięknie odrestaurowane wnętrze. Piwnica jest niewielka, ma zaledwie około pięćdziesięciu metrów. Brakuje jeszcze fug , a na podłodze wylana jest betonowa szlichta.</p>
 
-![sklepienie](https://lh6.googleusercontent.com/-hZGEM8M1-go/U4c5BtMwiVI/AAAAAAAAAh8/7Jq014FNEnM/w718-h539-no/piwnica2.jpg)
+<h3 align+"center">![sklepienie](https://lh6.googleusercontent.com/-hZGEM8M1-go/U4c5BtMwiVI/AAAAAAAAAh8/7Jq014FNEnM/w718-h539-no/piwnica2.jpg)<br/>
+
 <p:<i>&ndash;Gdy tu pierwszy raz weszliśmy część sklepienia była zawalona, a piwnica częściowo zasypana. Obecnie zakończyliśmy podstawowe prace rekonstrukcyjne</i><br/>
 Nowe, dorabiane ręcznie cegły odcinają się od oryginalnych fragmentów. Archeolog pokazuje nam odkryte obok kolejne pozostałości trzynastowiecznych murów. One także zostaną włączone do ekspozycji, ale już nie będą odbudowywane. 
 Widać kominek i nietypowe ceglane sklepienia. Piwnica, jak i cały budynek była wielokrotnie przebudowywana. Służyła prawdopodobnie za refektarz, aż do początku XIX wieku. Około roku 1813 klasztor, uległ zniszczeniu, a na jego miejscu urządzono plac ćwiczeń dla wojska. Później powstało tu targowisko. To, że stał tu klasztor było wiadomo od dawna. Jednak nikt nie przypuszczał, że odnaleziona piwnica pochodzi z tak odległej przeszłości. 
